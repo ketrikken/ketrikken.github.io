@@ -1,1 +1,0 @@
-# ketrikken.github.io
